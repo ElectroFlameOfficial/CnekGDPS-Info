@@ -20,3 +20,4 @@
 * Android: [https://mega.nz/#!5FRgWTTL!ro6f_v06W3OESx-E01n60DB6hCXgQimKj7guMkvE_qs](https://mega.nz/#!5FRgWTTL!ro6f_v06W3OESx-E01n60DB6hCXgQimKj7guMkvE_qs)
 * iOS: Coming Soon™
 ---
+hai uwu
